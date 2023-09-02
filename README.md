@@ -1,0 +1,2 @@
+# thescenicvlogs.cloud
+personally blog
